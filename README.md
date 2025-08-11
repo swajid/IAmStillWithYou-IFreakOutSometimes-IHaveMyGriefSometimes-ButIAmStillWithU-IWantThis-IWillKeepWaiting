@@ -4,3 +4,5 @@ i was crying a little yesterday night, overwhelmed with some emotion and stuff, 
 
 so when i see you again, i have to wear like waterproof eye liner and stuff lol
 
+https://www.youtube.com/watch?v=z8k0EHo9YCQ yeah this lol
+
